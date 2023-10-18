@@ -1,1 +1,0 @@
-# G7_cuonteries_trade_preformnce
